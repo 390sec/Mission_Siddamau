@@ -1,3 +1,5 @@
+
+
 # AGAPE: SOURCE, FLOW, AND ARCHITECTURE : https://chatgpt.com/share/6a0f21aa-14e4-83a2-9f55-7f5d3e743a14
 
 ## Is Agape Given by God, or Are Humans Supposed to Give It to Others?
